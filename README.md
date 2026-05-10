@@ -1,0 +1,1 @@
+# ladies_store_blog
